@@ -1,1 +1,1 @@
-# Dolgozat
+# Tréki Máté
